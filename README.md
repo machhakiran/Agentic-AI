@@ -9,7 +9,7 @@ I couldn't be more excited to welcome you! This is the start of your 6 week adve
 
 ### Before you begin
 
-I'm here to help you be most successful! Please do reach out if I can help, either in the platform or by emailing me direct (ed@edwarddonner.com). It's always great to connect with people on LinkedIn to build up the community - you'll find me here:  
+I'm here to help you be most successful! Please do reach out if I can help, either in the platform or by emailing me direct (machhakiran@gmail.com). It's always great to connect with people on LinkedIn to build up the community - you'll find me here:  
 https://www.linkedin.com/in/machhakiran/  
 
 ### The not-so-dreaded setup instructions
