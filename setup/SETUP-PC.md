@@ -8,8 +8,8 @@ Setting up a powerful environment to work at the forefront of AI is not as easy 
 
 If you hit problems, please don't hesitate to reach out. I am here to get you up and running quickly. There's nothing worse than feeling _stuck_. Message me, email me or LinkedIn message me and I will unstick you quickly!
 
-Email: ed@edwarddonner.com  
-LinkedIn: https://www.linkedin.com/in/eddonner/  
+Email: machhakiran@gmail.com
+LinkedIn: https://www.linkedin.com/in/machhakian/  
 
 _If you're looking at this in Cursor, please right click on the filename in the Explorer on the left, and select "Open preview", to view the formatted version._
 
